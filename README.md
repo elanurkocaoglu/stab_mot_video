@@ -1,1 +1,0 @@
-# stab_mot_video
